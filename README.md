@@ -41,7 +41,7 @@
 ## 🌐 Connect with Me  
 
 - 💼 [LinkedIn](www.linkedin.com/in/muhammad-ashraf-909038347)    
-- 📧 Email: muhammad.ashraf.fathy@gmail.com 
+- 📧 [Email]: muhammad.ashraf.fathy@gmail.com 
 
 ---
-⭐️ From [MuhammadAshraf](https://github.com/MuhammadAshraf)  
+⭐️ From [MuhammadAshraf](https://github.com/MuhammadAshraf221B)  
